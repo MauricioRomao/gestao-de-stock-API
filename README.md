@@ -1,2 +1,0 @@
-- yqg  ywgy  qwyug  qw  qw
--   qsk  qnmsm  qm  s
